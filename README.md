@@ -1,1 +1,1 @@
-# home_work_lesson_1_practcs
+# home_work_lesson_1_practics
